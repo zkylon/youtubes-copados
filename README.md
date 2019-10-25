@@ -40,10 +40,11 @@ https://www.youtube.com/channel/UCH9Upwx0Bvoy7Tkj4JGaKnw
 * Every Frame A Painting: ensayos sobre montaje/edición
 https://www.youtube.com/channel/UCjFqcJQXGZ6T6sxyFB-5i6A
 
-* Lindsay Ellis: análisis de cine (especialmente Disney). Tiene una muy buena serie de análisis de las pelis de Transformers desde múltiples teorías de análisis (marxismo, feminismo, teoría de autor, etc...)
+* Lindsay Ellis: análisis de cine (especialmente Disney). Tiene una muy buena serie de análisis de las pelis de Transformers desde múltiples teorías de análisis (marxismo, feminismo, teoría de autor, 
+...)
 https://www.youtube.com/channel/UCG1h-Wqjtwz7uUANw6gazRw
 
-* Nerdwriter: ensayos cortos re digeribles sobre cine/pintura/etc
+* Nerdwriter: ensayos cortos re digeribles sobre cine/arte/etc.
 https://www.youtube.com/channel/UCJkMlOu7faDgqh4PfzbpLdg
 
 ## Cultura
